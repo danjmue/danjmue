@@ -1,1 +1,1 @@
-Currently a senior studying Data Science with a minor in Music at the University of Michigan - Ann Arbor.
+University of Michign Alum - Bachelors of Science in Data Science, Minor in Music
